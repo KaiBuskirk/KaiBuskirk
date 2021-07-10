@@ -1,5 +1,6 @@
 ### Hi there HXY-Ō5/3!
 Walking Along, Cheers!
+https://www.linkedin.com/in/kai-buskirk-b045466
 <!--
 **KaiBuskirk/KaiBuskirk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
